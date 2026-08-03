@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://file.garden/alqzdNqplE9QfqIX/Untitled250_20260720014329.png" width="45%" />
+<img src="https://file.garden/alqzdNqplE9QfqIX/Untitled250_20260804011934.png" width="45%" />
 <br> <sub> ask 2 c+h unless friends. dont copy. ask 2 take inspo. check rentry b4 int.
   <br> ponytown's sam winchester :-3 <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> <a href="https://github.com/pt-of-awesomeness">pt-of-awesomeness</a>
   <p align="center">
