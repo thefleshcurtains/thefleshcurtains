@@ -8,3 +8,4 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3137jfkefuekz3mcnu2wri6bpziq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=b17b4e&bar_color_cover=false">
   </a>
 </p>
+<p align="left"><sub>my <a href="https://github.com/thefleshcurtains">team</a>-<a href="https://github.com/therealcastiel">free</a>-<a href="https://github.com/NERDPROJECT">will</a> trio <a href="https://github.com/pt-friendships"><3</a></sub></p>
